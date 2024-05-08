@@ -1,0 +1,1 @@
+Perkenalkan saya Shofura Afanin Nuha pelamar dan ini merupakan ruang portofolio saya, silahkan bisa di klik untuk dilihat, terdapat portofolio visualisasi data mapping, dan ijazah S1 saya, terimakasih sebelumnya sudah mengakses link github saya
